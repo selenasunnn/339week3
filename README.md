@@ -1,1 +1,1 @@
-# 339week3
+# 339 Week 3 - Discussion
